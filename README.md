@@ -1,2 +1,0 @@
-# abduldevs
-my portfolio 
